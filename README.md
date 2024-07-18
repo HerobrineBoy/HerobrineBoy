@@ -5,6 +5,7 @@
 - 📫 How to reach me just send me a dm on discord 
 - 😄 Pronouns: 100% Herobrine
 - ⚡ Fun fact: im a youtuber
+- what im working on right now: Minecraft Alpha 1.2.1
 
 <!---
 HerobrineBoy/HerobrineBoy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
