@@ -2,7 +2,7 @@
 - 👀 I’m interested in re-creating minecraft versions
 - 🌱 I’m currently learning coding games  
 - 💞️ I’m looking to collaborate on idk yet
-- 📫 How to reach me just send me a dm on discord 
+- 📫 How to reach me just: send me a dm on discord, here is my discord (herobrinewastaken_ or CoolHerobrineYT_)
 - 😄 Pronouns: 100% Herobrine
 - ⚡ Fun fact: im a youtuber
 - what im working on right now: Minecraft Alpha 1.2.1
